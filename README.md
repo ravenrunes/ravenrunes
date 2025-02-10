@@ -25,4 +25,6 @@ First and foremost, I chose this theme because, at the time, the idea of linking
 
 For more info, take a peek at my [socials](https://linktr.ee/ravenrunesofficial) 😁.
 
+---
+
 **[1]**: https://en.wikipedia.org/wiki/Creepypasta
